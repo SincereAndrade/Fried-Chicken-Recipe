@@ -6,29 +6,29 @@ https://octodex.github.com/images/friedchicken.jpeg
 
 
 ## Ingredients
-3 cups all-purpose flour
+1. 3 cups all-purpose flour
 
-1 ½ tablespoons garlic salt
+2. 1 ½ tablespoons garlic salt
 
-1 tablespoon ground black pepper
+3. 1 tablespoon ground black pepper
 
-1 tablespoon paprika
+4. 1 tablespoon paprika
 
-½ teaspoon poultry seasoning
+5. ½ teaspoon poultry seasoning
 
-1 ⅓ cups all-purpose flour
+6. 1 ⅓ cups all-purpose flour
 
-1 teaspoon salt
+7. 1 teaspoon salt
 
-¼ teaspoon ground black pepper
+8. ¼ teaspoon ground black pepper
 
-2 egg yolks, beaten
+9. 2 egg yolks, beaten
 
-1 ½ cups beer or water
+10. 1 ½ cups beer or water
 
-1 quart vegetable oil for frying
+11. 1 quart vegetable oil for frying
 
-1 (3 pound) whole chicken, cut into pieces
+12. 1 (3 pound) whole chicken, cut into pieces
 
 
 ## Directions
