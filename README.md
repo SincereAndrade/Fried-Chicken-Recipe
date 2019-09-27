@@ -2,7 +2,10 @@
 Simple way to make fried chicken that anyone can understand. Fun and delicious for the whole family!
 
 ![Imageoffriedchicken](./fried.jpg)
-
+**Cook time:** 25 mins
+**Prep Time:** 1 hour
+**Total Cost:** Varies
+**Servings:** 4
 
 ## Ingredients
 1. 3 cups all-purpose flour
