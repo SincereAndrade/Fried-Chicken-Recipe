@@ -21,17 +21,17 @@ Simple way to make fried chicken that anyone can understand. Fun and delicious f
 
 6. 1 ⅓ cups all-purpose flour
 
-7. 1 teaspoon salt
+7. [1 teaspoon salt](https://www.amazon.com/365-Everyday-Value-Salt-Crystals/dp/B074MHLXBT/ref=sxin_3_pb?fpw=pantry&keywords=salt&pd_rd_i=B074MHLXBT&pd_rd_r=dd747893-30b1-465e-97d3-ff98cb2fc5a1&pd_rd_w=H4Q9Y&pd_rd_wg=Cvgsn&pf_rd_p=9ef0c97a-254b-445c-822b-c948e2d94ddd&pf_rd_r=65208GWS3S7ZA8Y1VE65&qid=1569602350&s=pantry)
 
 8. ¼ teaspoon ground black pepper
 
-9. 2 egg yolks, beaten
+9. [2 egg yolks, beaten](https://www.google.com/aclk?sa=l&ai=DChcSEwjXsPrRuPHkAhVCnLMKHde0D0YYABAOGgJxbg&sig=AOD64_1NRmqBIXTMdK1Zhog1YrVrbXY3-Q&ctype=46&q=&ved=0ahUKEwidoPbRuPHkAhUuSN8KHcgND7UQ1CkIjgM&adurl=)
 
 10. 1 ½ cups beer or water
 
-11. 1 quart vegetable oil for frying
+11. [1 quart vegetable oil for frying](https://www.amazon.com/Amazon-Brand-Happy-Vegetable-Ounces/dp/B07PC8CC3B/ref=sr_1_1_sspa?keywords=vegetable+oil&qid=1569602482&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEyR0I4UDdPNTlZWUxOJmVuY3J5cHRlZElkPUEwOTM0MTQ3MTU5VDNCU0tGSklINiZlbmNyeXB0ZWRBZElkPUEwMzQyNjcxM1JFMkhKVlFVVFRRVSZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=)
 
-12. 1 (3 pound) whole chicken, cut into pieces
+12. [1 (3 pound) whole chicken, cut into pieces](https://www.google.com/aclk?sa=l&ai=DChcSEwjYrfGSufHkAhUXYoYKHbS5CIsYABADGgJ2dQ&sig=AOD64_06wM4ZcI8w3DG6BbkHzS_aQJkuTw&ctype=46&q=&ved=0ahUKEwi64eySufHkAhWEv1kKHS_ID7gQ1CkIiAM&adurl=)
 
 
 ## Directions
